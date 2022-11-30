@@ -2,7 +2,7 @@
 - 👀 I'm Enthusiast & Creative Mind
 - 🏝️ I’m interested in Travel Around The World, Planes & Metaverse
 - 🌱 I’m visited 59 countries around the world, made 3 times around the globe
-- 💞️ I’m looking to collaborate on The Rainbowland mMtaverse
+- 💞️ I’m looking to collaborate on The Rainbowland Metaverse
 - 📫 Discord Navajjoo#8567
 
 <!---
